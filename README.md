@@ -1,0 +1,2 @@
+# premium-amber-set-001-amber-stone-setting-bezel-wr
+Tired of scattered notes and forgotten measurements for your amber bezel wraps? This Notion hub consolidates every stone, setting, and wrap step into one organized workspace.  Stop wasting time searching for material specs or project progress. The Amber Stone Setting &amp; Bezel Wrap Craft Hub gives you a dedicated system to track stones, settings, too
